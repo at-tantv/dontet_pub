@@ -44,12 +44,5 @@ Như vậy, ngày Tết cổ truyền luôn luôn mang ý nghĩa vô cùng nhân
 
 *Nguồn*: dichungtaxi.com
 
-```sh
-*Facebook*: [https://www.facebook.com/dontetonline](https://www.facebook.com/dontetonline)
-```
-
-##### Thông tin liên hệ
-
-Like fanpage để cập nhật những thông tin mới nhất
-
-Facebook [https://www.facebook.com/dontetonline](https://www.facebook.com/dontetonline)
+##### Like fanpage để cập nhật những thông tin mới nhất
+FANPAGE: [https://www.facebook.com/dontetonline](https://www.facebook.com/dontetonline)
