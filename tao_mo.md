@@ -117,26 +117,46 @@ Con kính lạy vong linh ……….
 
 Hôm nay là ngày…tháng…năm…,
 nhằm tiết ….. Chúng con là:…………… Thành tâm sắm sanh phẩm vật, hương hoa phù tửu lễ nghi, trình cáo Chư vị Tôn Thần về việc lễ tạ mộ phần.
+
 Nguyên có vong linh thân nhân của gia đình chúng con là:……….hiện phần mộ an táng ở nơi này.
+
 Đội ơn Chư vị Tôn thần che chở, ban ân, vong linh được yên ổn vui tươi nơi chín suối.
+
 Lại nhờ có duyên lành, gia đình chúng con được vong linh thường về ghé thăm, linh ứng giúp chỉ dẫn các công các việc được đầu xuôi đuôi lọt, nhờ thế toàn gia được an ninh khang thái, từng bước tiến bộ.
+
 Nay nhằm ngày lành tháng tốt, gia đình chúng con sắm sửa lễ tạ mộ những mong báo đáp ân thâm, tỏ lòng hiếu kính.
+
 Cúi xin Chư vị Tôn Thần lai giáng án tiền, nhận hưởng lễ vật, chứng minh tâm đức.
+
 Cúi mong vong linh chấp kỳ lễ bạc, lời kêu tiếng khấn, tờ đơn cánh sớ, tùy phương ứng biến, độ trì toàn gia, từ trẻ tới già, luôn được vui tươi, mạnh khỏe.
+
 Chúng con dâng biếu vong linh tài mã gồm: …. (đọc tên các đồ mã dâng cho vong).
+
 Âm dương cách trở, bát nước nén hương, giãi tấm lòng thành, cúi xin chứng giám. Cẩn cáo.
+
 Những điều cần lưu ý khi đi tảo mộ ngày Tết
-Tưởng chừng dọn dẹp, trang hoàng lại mộ phần là công việc ai ai cũng làm được. Thế nhưng nơi mộ phần là nơi linh thiêng nên nếu chỉ mới biết đi tảo mộ cần chuẩn bị những gì thì chưa đủ. Bạn nếu không biết cách dọn dẹp ở mộ hay không lưu ý đến những điều cấm kỵ khi tảo mộ ngày Tết thì có thể mang vào mình xui xẻo đấy nhé! Vậy nên, để có một năm mới an vui, có một ngày lễ tảo mộ suôn sẻ thì để bTaskee mách bạn những điều cấm kỵ gì khi đi tảo mộ ngày Tết nhé. 
+
+Tưởng chừng dọn dẹp, trang hoàng lại mộ phần là công việc ai ai cũng làm được. Thế nhưng nơi mộ phần là nơi linh thiêng nên nếu chỉ mới biết đi tảo mộ cần chuẩn bị những gì thì chưa đủ. Bạn nếu không biết cách dọn dẹp ở mộ hay không lưu ý đến những điều cấm kỵ khi tảo mộ ngày Tết thì có thể mang vào mình xui xẻo đấy nhé! Vậy nên, để có một năm mới an vui, có một ngày lễ tảo mộ suôn sẻ thì để bTaskee mách bạn những điều cấm kỵ gì khi đi tảo mộ ngày Tết nhé.
+
 Không đi tảo mộ 1 mình ở nơi hẻo lánh
+
 Vì nơi chôn cất mộ phần theo như phong thủy sẽ có nhiều tà khí. Chính vì thế, khi tảo mộ nên đi thành đoàn người, nhất là đi tảo mộ ở nơi hẻo lánh. Và khi về đến nhà thì nêu bước qua chậu lửa hay tắm nước bưởi để xua đuổi đi vận xấu nhé. Cách xua đuổi điềm rỡ này được người Trung Quốc áp dụng rất nhiều cho đến tận ngày nay. 
+
 Không được quên cúng thần linh xung quanh mộ
+
 Bởi vì thần linh luôn là bậc tối cao, là người đã che chở và bảo hộ cho ông bà tổ tiên đã khuất của chúng ta. Vậy nên khi tảo mộ ngày Tết, bên cạnh việc bái lạy tổ tiên thì cúng và bái lạy các vị thần linh xung quanh như thần thổ địa,… xung quanh đó là rất cần thiết. 
 Tuyệt đối không được dẫm đạp lên mộ phần người khác 
+
 Dù là mộ phần của tổ tiên mình hay của những người không quen biết thì đều rất thiêng liêng và có những ý nghĩa tâm linh nhất định. Chính vì thế, khi dọn dẹp mộ phần của tổ tiên mình thì cũng phải chú ý không làm ảnh hưởng đến những mộ phần bên cạnh. Đặc biệt là nếu bạn có dẫn trẻ nhỏ theo thì phải trông chừng thật kỹ để tránh việc chúng phá đồ cúng hay đồ vật bên phần mộ người khác. 
+
 Không chụp ảnh tập thể xung quanh mộ
+
 Ngày nay mọi người thường sẽ chụp ảnh, quay phim lại mọi khoảnh khắc trong ngày, đặc biệt là các dịp quan trọng như lễ Tết. Tuy nhiên, chụp ảnh ở nơi có mộ phần là không nên và đặc biệt là dàn hàng ngang và quay lưng về phía mộ phần lại càng không được. Việc quay lưng lại với mộ phần là một hành động thể hiện sự thiếu tôn trọng với người đã khuất. 
+
 Không cho phụ nữ mang thai hoặc trong kỳ kinh nguyệt đi tảo mộ 
+
 Phụ nữ trong những thời điểm này cơ thể có hệ miễn dịch yếu hơn bình thường nên nếu đến mộ phần – nơi có nhiều âm khí thì sẽ rất dễ bị nhiễm lạnh và bệnh vì trúng khí độc do có nhiều phần mộ. 
+
 Lễ tảo mộ luôn mang một ý nghĩa đặc biệt đối với mỗi người Việt Nam. Chính vì thế, dù là già hay trẻ thì bạn cũng nên biết ý nghĩa của việc tảo mộ ngày Tết một cách tường tận. Đồng thời bạn cũng phải biết đi tảo mộ cần chuẩn bị những gì để nếu gia đình có giao trọng trách tảo mộ cuối năm cho bạn là người chuẩn bị thì bạn cũng sẽ không bị bỡ ngỡ. Hy vọng gia đình bạn có một buổi lễ tảo mộ cuối năm diễn ra thành công và suôn sẻ. Mong mọi điều may mắn sẽ đến với gia đình bạn dịp Tết này. 
 
 *Nguồn*: https://blog.btaskee.com
