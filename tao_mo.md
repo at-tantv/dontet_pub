@@ -10,7 +10,7 @@ Khi nào tảo mộ gọi là Tết Thanh Minh?
 
 [![N|Solid](https://blog.btaskee.com/wp-content/uploads/2020/12/tet-thanh-minh-trung-quoc.jpg)](https://www.facebook.com/dontetonline)
 
-#### Theo như phong tục từ xưa đến nay của người Việt, cứ mỗi dịp cuối năm vào khoảng từ 20 đến 30 tháng Chạp (âm lịch). Cuối khoảng thời gian này vào mỗi năm, đặc biệt là ở các vùng quê, bạn sẽ thấy cảnh nhà nhà tấp nập đi tảo mộ. Khi đi tảo mộ cần chuẩn bị những gì thường là do những người lớn tuổi như ông bà cha mẹ chuẩn bị sẵn. Chính vì thế, giới trẻ chúng ta thường sẽ không biết được cần có những gì để có được một buổi lễ tảo mộ tươm tất, đủ đầy. 
+Theo như phong tục từ xưa đến nay của người Việt, cứ mỗi dịp cuối năm vào khoảng từ 20 đến 30 tháng Chạp (âm lịch). Cuối khoảng thời gian này vào mỗi năm, đặc biệt là ở các vùng quê, bạn sẽ thấy cảnh nhà nhà tấp nập đi tảo mộ. Khi đi tảo mộ cần chuẩn bị những gì thường là do những người lớn tuổi như ông bà cha mẹ chuẩn bị sẵn. Chính vì thế, giới trẻ chúng ta thường sẽ không biết được cần có những gì để có được một buổi lễ tảo mộ tươm tất, đủ đầy. 
 
 [![N|Solid](https://blog.btaskee.com/wp-content/uploads/2021/01/tao-mo-cuoi-nam.jpg)](https://www.facebook.com/dontetonline)
 
